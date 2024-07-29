@@ -19,8 +19,7 @@ I am a Btech IT Student who's just dilly dallying on Github 😭
 
 - 🪘 just languorous(Defo not scared)
 
-
-                                                                               ⠀★·.·´¯`·.·★ Thank you for visiting my profile! ★·.·´¯`·.·★
+## ★·.·´¯`·.·★ Thank you for visiting my profile! ★·.·´¯`·.·★
 
 
 
