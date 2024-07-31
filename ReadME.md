@@ -1,4 +1,3 @@
-# Hi,Name's Rohit! 👋
 
 I am a Btech IT Student who's just dilly dallying on Github 😭
 
